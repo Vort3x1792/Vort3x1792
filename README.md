@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Vort3x1792
-- 👀 I’m interested in ...codeing
+- 👀 I’m interested in ...coding
 - 🌱 I’m currently learning ...not much i just started
 - 💞️ I’m looking to collaborate on ...a game that i will make
 - 📫 How to reach me ... idk
